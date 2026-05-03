@@ -1,1 +1,0 @@
-# AR_3d_project
